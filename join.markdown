@@ -22,4 +22,4 @@ Connect with other community leaders, conduct business and social entertainment,
 
 ## Request Information 
 
-To learn more about membership at the Greenview Inn, please contact Membership at [greenbrookinn@gmail.com](mailto:greenbrookinn@gmail.com)
+To learn more about membership at the Greenview Inn, please contact Membership at [services@greenbrook.me](mailto:greenbrookinn@gmail.com)
